@@ -27,5 +27,5 @@
 
 -   <https://soycomocomo.es/que-desayuno/pan-de-trigo-sarraceno>
 
-
-<a name="myfootnote1">1</a>: en nuestro horno a 200 °C
+##### Notas
+<a name="myfootnote1">1</a>: En nuestro horno a 200 °C
