@@ -17,7 +17,7 @@
 
 3.  Ten preparado un molde rectangular. Engrasa con un poquito de aceite de oliva y con la ayuda de una cuchara introduce la masa del pan. Aplana con una espátula algo humedecida y haz una marca de una línea a lo largo.
 
-4. Deja leudar durante 30 minutos.
+4.  Deja leudar durante 30 minutos.
 
 5.  Introdúcelo en el horno precalentado a 180 °C<sup>[1](#footnote1)</sup> y deja que se cocine por arriba y por abajo unos 30 minutos o hasta que esté ligeramente dorado. Al clavarle un palillo o un cuchillo, tiene que salir limpio.
 
@@ -25,7 +25,8 @@
 
 #### Fuentes
 
--   <https://soycomocomo.es/que-desayuno/pan-de-trigo-sarraceno>
+-   [Pan de trigo sarraceno](https://soycomocomo.es/que-desayuno/pan-de-trigo-sarraceno)
 
 ##### Notas
+
 <a name="footnote1">1</a>: En nuestro horno a 200 °C
