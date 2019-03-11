@@ -1,4 +1,4 @@
-# Barritas de cereales
+# Barritas de cereales :cookie:
 
 ## Ingredientes
 
