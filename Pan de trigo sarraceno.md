@@ -3,7 +3,7 @@
 ## Ingredientes
 
 -   460gr de harina de trigo sarraceno
--   ~~36g~~ 25gr de levadura fresca
+-   12gr de levadura fresca
 -   4 cucharadas soperas de aceite de oliva
 -   560ml de agua
 -   20gr de [psylium](https://www.glotonessingluten.com/recetas-sin-gluten/psyllium-una-gran-ayuda-pan-sin-gluten/)
