@@ -24,7 +24,7 @@
 
 6.  Introdúcelo en el horno precalentado a 180°C<sup>[1](#footnote1)</sup> y deja que se cocine por arriba y por abajo unos 40 minutos o hasta que esté ligeramente dorado. Al clavarle un palillo o un cuchillo, tiene que salir limpio.
 
-7.  Deja la puerta del horno abierta y deja que se enfríe durante un rato. Luego retira del horno y deja que se enfríe en el molde.
+7.  Deja la puerta del horno abierta y deja que se enfríe durante unos 15 minutos. Luego retira el pan del molde y dejalo enfriar del todo **en una rejilla**.
 
 #### Fuentes
 
