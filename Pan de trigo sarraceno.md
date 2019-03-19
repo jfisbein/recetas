@@ -7,7 +7,7 @@
 -   4 cucharadas soperas de aceite de oliva
 -   560ml de agua
 -   20gr de [psylium](https://www.glotonessingluten.com/recetas-sin-gluten/psyllium-una-gran-ayuda-pan-sin-gluten/)
--   1,5 cucharadas ~~de postre~~ soperas de sal
+-   1 cucharada sopera de sal
 -   (Opcional) un puñado de pipas de calabaza
 
 ## Preparación
