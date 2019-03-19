@@ -20,7 +20,7 @@
 
 4.  Si quieres, échale unas pipas de calabaza por encima.
 
-5.  Dejalo reposar durante 30 minutos para que leude.
+5.  Dejalo reposar durante 1 hora para que leude.
 
 6.  Introdúcelo en el horno precalentado a 180°C<sup>[1](#footnote1)</sup> y deja que se cocine por arriba y por abajo unos 30 minutos o hasta que esté ligeramente dorado. Al clavarle un palillo o un cuchillo, tiene que salir limpio.
 
