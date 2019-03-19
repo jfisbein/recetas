@@ -9,13 +9,9 @@
 ## Preparación
 
 1.  En una ensaladera grande hacemos una salmuera mezclando el agua y la sal, removemos bien hasta que la sal se disuelva.
-
 2.  Metemos la pechuga de pavo en la salmuera para que se sale durante 15 minutos<sup>[1](#footnote1)</sup>.
-
 3.  Sacamos la pechuga de la salmuera, la escurrimos y la envolvemos en papel de plata<sup>[2](#footnote2)</sup>.
-
 4.  Cocinamos la pechuga, envuelta en papel de plata, en la vaporera durante 20 minutos<sup>[3](#footnote3)</sup>, apagamos la vaporera y dejamos 10 minutos que se enfríe.
-
 5.  Sacamos el pavo del papel de plata y lo guardamos en un recipiente hermético en la nevera.
 
 ## Consumo
