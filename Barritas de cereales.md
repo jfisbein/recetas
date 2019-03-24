@@ -7,9 +7,9 @@
 -   50 gr de harina de arroz
 -   1 pizca de Sal
 -   50 ml de jarabe de arce
--   1 vaso pequeño de aceite de girasol
+-   130 ml de aceite de girasol
 -   50 gr de almendras laminadas o en cubitos pequeños
--   100 ml de leche de arroz
+-   150 ml de leche de arroz
 -   [opcional] 20 gr de semillas de sésamo
 
 ## Preparación
