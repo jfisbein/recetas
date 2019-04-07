@@ -21,7 +21,7 @@
 5.  Mezclar hasta obtener una masa homogénea.
 6.  Poner la mezcla en un molde donde previamente hemos puesto un papel de hornear.
 7.  Hornear durante 50 minutos o hasta que este dorado.
-8.  Dejarlo atemperar, cortarlo con la forma deseada antes de que se enfríe del todo y dejarlo que termine de enfriar en una rejilla.
+8.  Dejarlo atemperar 5 ó 10 minutos, cortarlo con la forma deseada antes de que se enfríe del todo y dejarlo que termine de enfriar en una rejilla.
 
 #### Fuentes
 
