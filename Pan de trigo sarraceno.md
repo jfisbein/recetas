@@ -18,7 +18,7 @@
 
 3. Continúa mezclando con una cuchara de madera. La masa será pegajosa y densa, no es una masa que puedas volcar desde un bol, si no que tienes que manipularla con una cuchara o similar. Eso sí, tiene que tener un poco de humedad, que no sea un mazacote, si es así añade un poquito más de agua.
 
-4.  Ten preparado un molde rectangular. Engrásalo con un poquito de aceite de oliva y con la ayuda de una cuchara introduce la masa del pan. Aplana con una espátula algo humedecida y haz una marca de una línea a lo largo.
+4.  Ten preparado un molde rectangular. Engrásalo con un poquito de aceite de oliva y con la ayuda de la cuchara de madera introduce la masa del pan. Aplana con una espátula algo humedecida y haz una marca de una línea a lo largo.
 
 5.  Si quieres, échale unas pipas de calabaza por encima.
 
