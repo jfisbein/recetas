@@ -16,6 +16,9 @@
 
 3.  Poner las regañás en una bandeja de horno y hornear a 180º unos 20 minutos o hasta que se vean secas pero sin quemarse.
 
+### Variaciones
+-   Puedes sustituir la mitad del aceite de oliva por aceite sésamo para darle un sabor a sésamo mas intenso.
+
 #### Fuentes
 
 -   [Regañás caseras de espelta](https://elracomesnaturaldemacasa.blogspot.com/2015/10/reganas-caseras-de-espelta.html)
