@@ -1,16 +1,17 @@
 # Barritas de cereales :cookie:
 
 ## Ingredientes
+(para una bandeja de 24cm x 36cm)
 
--   300 gr de copos de avena
--   50 gr de coco rallado
--   50 gr de harina de arroz
--   50 gr de almendras laminadas o en cubitos pequeños
--   [opcional] 20 gr de semillas de sésamo
+-   390 gr de copos de avena
+-   65 gr de coco rallado
+-   65 gr de harina de arroz
+-   65 gr de almendras laminadas o en cubitos pequeños
+-   [opcional] 30 gr de semillas de sésamo
 -   1 pizca de Sal
--   150 ml de leche de arroz
--   130 ml de aceite de girasol
--   50 ml de jarabe de arce
+-   200 ml de leche de arroz
+-   170 ml de aceite de girasol
+-   80 ml de jarabe de arroz
 
 ## Preparación
 
@@ -24,7 +25,7 @@
 8.  Dejarlo atemperar 5 ó 10 minutos, cortarlo con la forma deseada antes de que se enfríe del todo y dejarlo que termine de enfriar en una rejilla.
 
 ### Variaciones
-- Puedes sustituir el jarabe de arce por jarabe de arroz.
+- Puedes sustituir el arroz por jarabe de arce.
 
 #### Fuentes
 
