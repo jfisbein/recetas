@@ -19,13 +19,15 @@
 2.  Mezclar los ingredientes secos.
 3.  Añadir la leche mezclando.
 4.  Añadir el aceite y el sirope.
-5.  Mezclar hasta obtener una masa homogénea.
+5.  Mezclar todo hasta obtener una masa homogénea.
 6.  Poner la mezcla en un molde donde previamente hemos puesto un papel de hornear.
-7.  Hornear durante 50 minutos o hasta que este dorado.
-8.  Dejarlo atemperar 5 ó 10 minutos, cortarlo con la forma deseada antes de que se enfríe del todo y dejarlo que termine de enfriar en una rejilla.
+7.  Compactar y alisar la mezcla con una espátula de forma que quede bien repartida.
+8.  Marcar con un cuchillo o similar las marcas por donde vamos a querer cortar luego las barritas.
+9.  Hornear durante 50 minutos o hasta que este dorado.
+10.  Dejarlas atemperar 5 ó 10 minutos, cortar las barritas con la forma deseada antes de que se enfríe del todo y dejar que terminen de enfriar en una rejilla.
 
 ### Variaciones
-- Puedes sustituir el arroz por jarabe de arce.
+- Puedes sustituir el jarabe de arroz por jarabe de arce.
 
 #### Fuentes
 
