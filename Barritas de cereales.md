@@ -10,7 +10,7 @@
 -   [opcional] 30 gr de semillas de sésamo
 -   1 pizca de Sal
 -   200 ml de leche de arroz
--   170 ml de aceite de girasol
+-   80 ml de aceite de girasol
 -   80 ml de jarabe de arroz
 
 ## Preparación
