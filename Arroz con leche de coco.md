@@ -5,9 +5,9 @@
 -   Un litro leche de coco (yo uso Alpro)
 -   200 ml de "nata de coco" para cocinar
 -   Ralladura de limón
--   Un vaso mediano de arroz.
+-   Un vaso mediano de arroz
 -   Una cucharada sopera de dextrosa
--   [Opcional] Coco rallado para decorar.
+-   [opcional] Coco rallado para decorar
 
 ## Preparación
 
