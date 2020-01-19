@@ -6,7 +6,7 @@
 -   100gr de almidón de tapioca
 -   20gr de [psylium](https://www.glotonessingluten.com/recetas-sin-gluten/psyllium-una-gran-ayuda-pan-sin-gluten/)
 -   1 cucharada de postre de sal (aprox 7 gr)
--   (Opcional) un puñado de pipas de calabaza (aprox 20gr)
+-   [opcional] un puñado de pipas de calabaza (aprox 20gr)
 -   12gr de levadura fresca (medio cubito)
 -   40ml de aceite de oliva
 -   520ml de agua tibia
@@ -14,7 +14,7 @@
 
 ## Preparación
 
-1.  En un bol, mezcla bien todos los ingredientes secos, luego añade el aceite y, por último, lo 520 ml de agua, 
+1.  En un bol, mezcla bien todos los ingredientes secos, luego añade el aceite y, por último, lo 520 ml de agua,
 
 2. Pon los 40 ml de agua en un vaso, disuelve la levadura y añádela a la mezcla.
 
@@ -36,5 +36,5 @@
 
 ##### Notas
 
--   <a name="footnote1">1</a>: Cuanto mas tiempo esté en reposo mejor, si puedes dejalo 4 ó 5 horas. También se puede dejar reposar durante 12 horas en la nevera.
+-   <a name="footnote1">1</a>: Cuanto mas tiempo esté en reposo mejor, si puedes déjalo 4 ó 5 horas. También se puede dejar reposar durante 12 horas en la nevera.
 -   <a name="footnote2">2</a>: En nuestro horno a 200 °C
