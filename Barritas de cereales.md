@@ -11,7 +11,8 @@
 -   1 pizca de Sal
 -   200 ml de leche de arroz
 -   80 ml de aceite de girasol
--   80 ml de jarabe de arroz
+-   80 ml de jarabe de arroz<sup>[2](#footnote2)</sup>
+-   [opcional] 1 cucharada sopera de dextrosa
 
 ## Preparación
 
@@ -36,3 +37,4 @@
 ##### Notas
 
 <a name="footnote1">1</a>: En nuestro horno a 180 °C
+<a name="footnote2">2</a>: puedes sustituirlo por 60 ml de jarabe de arce
