@@ -3,8 +3,8 @@
 ## Ingredientes
 
 -   1 litro de agua
--   80gr de sal
--   350gr de pechuga de pavo fresca
+-   80 gr de sal
+-   350 gr de pechuga de pavo fresca
 
 
 ## Preparación
