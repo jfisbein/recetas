@@ -2,8 +2,8 @@
 
 ## Ingredientes
 
--   100gr de harina de trigo sarraceno
--   150ml de leche de arroz
+-   100 gr de harina de trigo sarraceno
+-   150 ml de leche de arroz
 -   1 huevo<sup>[1](#footnote1)</sup>
 
 ## Preparación
