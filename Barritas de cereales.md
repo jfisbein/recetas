@@ -9,10 +9,10 @@
 -   65 gr de almendras laminadas o en cubitos pequeños
 -   [opcional] 30 gr de semillas de sésamo
 -   1 pizca de Sal
+-   [opcional] 1 cucharada sopera de dextrosa
 -   200 ml de leche de arroz
 -   80 ml de aceite de girasol
 -   80 ml de jarabe de arroz<sup>[2](#footnote2)</sup>
--   [opcional] 1 cucharada sopera de dextrosa
 
 ## Preparación
 
@@ -28,7 +28,7 @@
 10.  Dejarlas atemperar 5 ó 10 minutos, cortar las barritas con la forma deseada antes de que se enfríe del todo y dejar que terminen de enfriar en una rejilla.
 
 ### Variaciones
-- Puedes sustituir el jarabe de arroz por jarabe de arce.
+- Puedes sustituir la leche de arroz por la leche vegetal que prefieras. La leche de coco (de la que viene en tetra-brik) le va muy bien.
 
 #### Fuentes
 
@@ -36,5 +36,5 @@
 
 ##### Notas
 
-<a name="footnote1">1</a>: En nuestro horno a 180 °C
-<a name="footnote2">2</a>: puedes sustituirlo por 60 ml de jarabe de arce
+-   <a name="footnote1">1</a>: En nuestro horno a 180 °C
+-   <a name="footnote2">2</a>: puedes sustituirlo por 60 ml de jarabe de arce
