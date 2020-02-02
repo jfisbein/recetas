@@ -2,9 +2,9 @@
 
 ## Ingredientes
 
--   200gr harina de trigo sarraceno
--   100ml agua
--   50ml aceite de oliva
+-   200 gr harina de trigo sarraceno
+-   100 ml agua
+-   50 ml aceite de oliva
 -   1/2 cucharada de sal
 -   1 cucharada de semillas de sésamo
 
