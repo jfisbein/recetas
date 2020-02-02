@@ -2,7 +2,7 @@
 
 ## Ingredientes
 
--   Un litro leche de coco (yo uso Alpro)
+-   Un litro leche de coco de lata.
 -   200 ml de "nata de coco" para cocinar
 -   Ralladura de limón
 -   Un vaso mediano de arroz
