@@ -2,15 +2,15 @@
 
 ## Ingredientes
 
--   360gr de harina de trigo sarraceno
--   100gr de almidón de tapioca
--   20gr de [psylium](https://www.glotonessingluten.com/recetas-sin-gluten/psyllium-una-gran-ayuda-pan-sin-gluten/)
+-   360 gr de harina de trigo sarraceno
+-   100 gr de almidón de tapioca
+-   20 gr de [psylium](https://www.glotonessingluten.com/recetas-sin-gluten/psyllium-una-gran-ayuda-pan-sin-gluten/)
 -   1 cucharada de postre de sal (aprox 7 gr)
 -   [opcional] un puñado de pipas de calabaza (aprox 20gr)
--   12gr de levadura fresca (medio cubito)
--   40ml de aceite de oliva
--   520ml de agua tibia
--   40ml de agua tibia (para la levadura)
+-   12 gr de levadura fresca (medio cubito)
+-   40 ml de aceite de oliva
+-   520 ml de agua tibia
+-   40 ml de agua tibia (para la levadura)
 
 ## Preparación
 
