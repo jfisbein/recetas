@@ -9,3 +9,4 @@ Aquí voy recopilando mis adaptaciones a recetas que voy encontrando por interne
 -   [Fiambre casero de pavo](<Fiambre casero de pavo.md>)
 -   [Pan de trigo sarraceno](<Pan de trigo sarraceno.md>)
 -   [Regañas de trigo sarraceno](<Regañas de trigo sarraceno.md>)
+-   [Pan blanco básico](<Pan Blanco.md>)
