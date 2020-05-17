@@ -10,4 +10,4 @@ Aquí voy recopilando mis adaptaciones a recetas que voy encontrando por interne
 -   [Pan de trigo sarraceno](<Pan de trigo sarraceno.md>)
 -   [Regañas de trigo sarraceno](<Regañas de trigo sarraceno.md>)
 -   [Pan blanco básico](<Pan Blanco.md>)
--   [Rilletes de sardinas](Rilletes de sardinas.md)
+-   [Rilletes de sardinas](<Rilletes de sardinas.md>)
