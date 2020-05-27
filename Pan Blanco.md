@@ -5,8 +5,8 @@
 -   12gr de levadura fresca
 -   400ml de agua tibia
 -   600gr de Harina
--   2,5 cucharas de café de sal
--   1 cucharada sopera de azucar
+-   11gr de sal (aprox 2,5 cucharas de café)
+-   9gr de azucar (aprox 1 cucharada sopera)
 -   3 cucharadas soperas de aceite de oliva
 -   4 cucharadas soperas de leche
 -   [opcional] un puñado de pipas de calabaza (aprox 20gr)
