@@ -3,7 +3,7 @@
 ## Ingredientes
 
 -   12gr de levadura fresca
--   400ml de agua tibia
+-   450ml de agua tibia
 -   600gr de Harina
 -   11gr de sal (aprox 2,5 cucharas de café)
 -   9gr de azucar (aprox 1 cucharada sopera)
